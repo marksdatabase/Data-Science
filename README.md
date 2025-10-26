@@ -5,6 +5,7 @@
 
 ### Education
 B.A. (hons.) Economics | Univeersity of Delhi (_May 2025_)
+
 Commerce with Maths | St. Joseph's School Greater Noida (_May 2022_)
 
 
